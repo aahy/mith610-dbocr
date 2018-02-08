@@ -26,7 +26,7 @@ institution for [text unreadable]
 seem that [text unreadable]
 strength of [text unreadable]
 had a better [text unreadable] con-
-sided at the time.
+sidered at the time.
 We greatly regret that the scarlet
 fever scare at the college prevented
 our annual game with St. Johns, for
